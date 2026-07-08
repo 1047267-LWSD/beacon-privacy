@@ -45,4 +45,4 @@ If this policy changes, the updated version will be posted at this same URL with
 
 ## Contact
 
-Questions about this policy or your data can be sent to: **[your email here]**
+Questions about this policy or your data can be sent to: **ri.kulkarni02@gmail.com**
